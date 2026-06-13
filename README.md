@@ -1,4 +1,4 @@
-# Project Azal (Alpha 1.0.0)
+# Project Azl (Alpha 1.0.0)
 
 ​هل تمتلك القدرة على فك شيفرة مستقبل الوعي؟ الملف مفتوح لمن يمتلك المهارة.
 Can you decode the future of consciousness? The manifest is open to those who possess the skill.
@@ -17,6 +17,6 @@ Can you decode the future of consciousness? The manifest is open to those who po
 [https://drive.google.com/file/d/11plKMfJubG_MBp0IydO0cMjRDbLm5bl0/view?usp=drivesdk](https://drive.google.com/file/d/11plKMfJubG_MBp0IydO0cMjRDbLm5bl0/view?usp=drivesdk)
 
 ---
-**Sigma | The Architect of Azal**
+         *السيجما المصري | The Architect of AZL*
 [ The Pulse: https://drive.google.com/file/d/11plKMfJubG_MBp0IydO0cMjRDbLm5bl0/view?usp=drivesdk ]
 *Security. Integrity. Evolution.*
